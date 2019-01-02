@@ -1,2 +1,2 @@
 # raaj
-new year
+new year new session of practice.
